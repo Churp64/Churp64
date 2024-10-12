@@ -1,0 +1,10 @@
+- 👋 Howdy folks! My name's Churp, but you could call me in any other way starting from my root username lol. Most known aliases are: Churp64, Churpie, Churpette, Churpington.
+- 👀 I’m interested in trying to get used to this website lol, as well as possibly uploading my own stuff in the future :D
+- 🌱 I’m currently learning how to speedrun new games every once and a while and how to git gud. Besides that, many other things IRL.
+- 💞️ I’m looking to collaborate on anything really. No preferences yet. If you want to help me out with certain things, I'd very much appreciate it <3
+- 📫 You can reach out to me via the following:
+-> Discord: _churp_64
+-> YouTube: https://www.youtube.com/channel/UChPdo4FwkFY09siWS7kn2JA
+-> Twitch: twitch.tv/Churp64
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I'm a shiba addict, music addict as well as a schmoover in games. Passionate about gaming, video editing and bike riding too in traffic, risking my life every day xdd
